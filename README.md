@@ -1,4 +1,6 @@
-Welcome to course MDK 02.02 owo
-Today is sunny!
+Welcome to course MDK 02.02 uwu
+Today is cloudy!
 
-owowowowowowowowo
+uwuwwwuwwuwuwwuwuwuwu
+
+I'm not lazy, I'm on energy saving mode.
